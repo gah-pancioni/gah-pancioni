@@ -8,4 +8,4 @@ Meu nome é Gabriel Pancioni
 
    ### Você entrar em contato comigo 📫
 
-   
+   gabriel.pancioni.elias@escola.pr.gov.br
